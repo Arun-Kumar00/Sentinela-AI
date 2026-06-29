@@ -178,7 +178,7 @@ Cozzolino & Verdoliva (2020), Frank et al. (2020), Wang et al. (2020).
 
 **Supervisor:** Dr. Anurag singh, Associate Professor, CSE  
 **Institution:** National Institute of Technology Delhi  
-**Duration:** July – December 2025
+**Duration:** January - May 2026
 
 ---
 
